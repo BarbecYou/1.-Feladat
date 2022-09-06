@@ -1,4 +1,4 @@
-# [Név]
+# [Füredi Dániel]
 
 
 ## Hogyan kezdj neki?
